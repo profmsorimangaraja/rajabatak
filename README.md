@@ -1,0 +1,4 @@
+rajabatak
+=========
+
+guru spritual dunia
